@@ -7,4 +7,6 @@
 ![初二晚上多1](https://github.com/user-attachments/assets/f1555c53-c423-4ce5-a9ea-c5012eb253e2)
 ![初二南海中午](https://github.com/user-attachments/assets/0a3e53f8-0bb7-4611-b66c-5a653afc36f3)
 ![初二松柏晚上2](https://github.com/user-attachments/assets/184c40c7-db3b-4091-b77e-082fc5de9884)
-![初二松柏中午1](https://github.com/user-attachments/assets/7a7281f5-8b41-4b04-a284-3b493f811f96)
+<img width="451" height="650" alt="初二中午松柏 1" src="https://github.com/user-attachments/assets/4c7a0cea-e78e-4d1c-988f-acbe339b6126" />
+
+![524069487](https://github.com/user-attachments/assets/9baea56f-d634-46e3-95ae-76deb20b45e2)
